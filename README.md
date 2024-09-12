@@ -1,2 +1,1 @@
-*_*
-+_+
++_+ Gonna update it soon, mayhaps
